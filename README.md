@@ -1,0 +1,4 @@
+We are a new cryptocurrency based on our revolutionary new blockchain that allows users to send and receive payments instantly, securely, and affordably.
+Our coin and blockchain (still unnamed and unbranded) provide secure and instant transactions at a cost of a few cents, regardless of the transferred amount. Our Blockchain is a hybrid proof-of-stake and proof-of-service model that enhances existing technology. It's designed for extremely low network fees, secure transactions, environmentally friendly energy consumption, and most importantly, everyday use.
+Our users can easily manage their income, payments, currency exchanges, and savings from any of our wallets instantly, no matter where they reside. There are no waiting times, long queues, daily commutes, or high fees. We help everyone save more and live better.
+As we move forward with the branding process, we have decided to name our Blockchain and Coin: i82.
